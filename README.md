@@ -1,1 +1,1 @@
-# Psychology
+# Psychology মনোবিজ্ঞান
